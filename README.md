@@ -37,7 +37,7 @@ Trusted by clubs across the UK and EU, Olympiq makes **running a sports club eas
 
 ## Learn More
 
-Visit our website: [https://pace-up.co.uk](https://pace-up.co.uk)
+Visit our website: [https://www.olympiq.co.uk](https://www.olympiq.co.uk)
 
 ---
 
